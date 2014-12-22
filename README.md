@@ -35,11 +35,15 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The life, and raigne of King Edward the Sixt Written by Sr. Iohn Hayward Kt. Dr. of Lawe.Hayward, Jo
+MAIESTY THE LIFE▪ AND RAIGNE OF KING EDWARD THE SIXT▪Written by S•. Iohn Hayward 〈◊〉Dr. of Lawe. Lon
+1. Courteous Reader,
+
 #####Body#####
-The life, and raigne of King Edward the Sixt Written by Sr. Iohn Hayward Kt. Dr. of Lawe.Hayward, Jo
+
+1. THE LIFE AND RAIGNE OF K. EDVVARD THE SIXTH.
+
 #####Back#####
-The life, and raigne of King Edward the Sixt Written by Sr. Iohn Hayward Kt. Dr. of Lawe.Hayward, Jo
+LONDON, Printed for IOHN PARTRIDGE, and are to be sold at his Shop in Pauls Church-yard at the signe
 **Types of content**
 
   * There are 4 **verse** lines!
